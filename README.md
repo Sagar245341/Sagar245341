@@ -9,7 +9,7 @@ I'm a  Student passionate about building clean, functional applications.
 
 ### 📫 Connect with me
 * **LinkedIn:** www.linkedin.com/in/sagar-singh64
-* **Email:** sagarsingh646436@gmail.com
+* **Email:** sagarsingh245341@gmail.com
 
 ---
 ⭐️ *From Sagar Singh *
